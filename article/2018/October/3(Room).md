@@ -1,0 +1,3 @@
+     
+### Room     
+     I was watched the movie "Room" this morning. And it described a woman and her little girl's life. A woman who was imprisoned by a stranger man for seven long years in a little room.  Eating in the room, drinking in the room, sleeping in the room, all the activities have happened in the little room, no one came except the "old nick", the dick man. Only came the little room when he wanna have some sex with the woman. She was suffering this kind of life for seven years. It was the toughest life in her life. But thank god she passed it.  What's the meaning of being human? What's the purpose of life? What is the cleverest choice to be suicide when you're involved in this situation? 
