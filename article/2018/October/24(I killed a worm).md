@@ -1,0 +1,2 @@
+### I killed a worm
+I killed a worm. Cause it crawled in front of me.On the desk where I work. I felt guilty. What's the reason I killed it? Everyone lived in the world should have the right to choose to alive or dead. But I deprived it's right. Why?  Cause I'm a human? I got the stronger power than its. Struggle for life.  Yep. It seems like I am a heartless man. I got some many reasons to let it go. But I just choose the most cural way to finished its life.  Just because I am at the top of the food. Human, if you know what am I saying.
