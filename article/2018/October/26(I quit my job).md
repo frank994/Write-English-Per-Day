@@ -1,0 +1,2 @@
+### I quit my job
+Today, I just made a decision to leave this company where I've worked here for six months. I met a lot of fun people here. I've grown up to an old boy. I always think that  I am still a boy. Life is full of adventures. It needs us to explore. And I'm excited to think of it. My life will get into a new stage. I love travels. Travel from different countries. Asia, Europ, America, Africa, all of the world. What makes me feel alive is to keep my head up and keep my feet walk. Life is infinite, we are infinite.
